@@ -35,4 +35,4 @@ To flattest of Texan land \
 There’s no one like this guy \
 With wide-open mind \
 Who knows what’s driving \
-The contemporary trend \
+The contemporary trend
