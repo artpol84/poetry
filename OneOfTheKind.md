@@ -1,4 +1,4 @@
-## One of A Kind
+## One of The Kind
 (https://www.youtube.com/watch?v=TpaPiRFxV5I)
 
 He’s one of the kind who never get tired \
